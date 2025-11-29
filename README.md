@@ -1,1 +1,1 @@
-### Hi, I'm Ayubxon Qosimov <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExb3dlYXlvcXQzcGJ6bWIwejlneXVkZ2V6anpxbDdnMWhxMzQ1a3hhcyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1IB22SuYeEMMPTguL/giphy.gif" width="50px" >
+### Hi, I'm Ayubxon Qosimov <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeWx2aHc1aHdxNThheGI0aHA3M3kzM3o2Nm02MDlqaXM0Znl2ZGVrMiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/l1IB22SuYeEMMPTguL/giphy.gif" width="100px" >
